@@ -1,1 +1,1 @@
-JS and TypeScript developer in Washington, DC, USA
+JS and TypeScript developer in Minneapolis, MN, USA
